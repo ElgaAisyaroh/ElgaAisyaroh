@@ -1,6 +1,15 @@
 ## Hi there 👋
 
-### My Name is Elga
+### About Me
+🔭 I’m currently studying on Accounting field, I'm on my sixth semester right now.
+
+🌱 I’m currently learning languages such as English,Spanish,Korean and Dutch. But I'm focus on English and Spanish because I really like those languages.
+
+⚡ Fun fact: 
+- I really love to watching anime, but fyi I'm not a weeb ahaha
+- My favorite animes are Haikyuu,One Piece and Tokyo Revengers
+- For my husbu, It is hard to say who is my husbu. I just fall in love with every boys on those anime ahaha. But,my favorite character is Zoro as you can see on my photo profile ahahaha.
+
 
 
 <!--
