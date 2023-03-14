@@ -5,6 +5,11 @@
 
 🌱 I’m currently learning languages such as English,Spanish,Korean and Dutch. But I'm focus on English and Spanish because I really like those languages.
 
+📫 How to reach me:
+- Instagram : https://www.instagram.com/ell.ais_/
+- Linkedin : https://www.linkedin.com/in/elga-aisyaroh-53377920a
+- Tiktok : @ellaisjung
+
 ⚡ Fun fact: 
 - I really love to watching anime, but fyi I'm not a weeb ahaha
 - My favorite animes are Haikyuu,One Piece and Tokyo Revengers
