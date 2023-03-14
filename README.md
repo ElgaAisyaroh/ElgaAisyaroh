@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 ### About Me
-🔭 I’m currently studying on Accounting field, I'm on my sixth semester right now.
+🔭 I’m currently studying Accounting, I'm on my sixth semester right now.
 
 🌱 I’m currently learning languages such as English,Spanish,Korean and Dutch. But I'm focus on English and Spanish because I really like those languages.
 
