@@ -1,6 +1,6 @@
-### Hi there 👋
+## Hi there 👋
 
-## My Name is Elga
+### My Name is Elga
 
 
 <!--
